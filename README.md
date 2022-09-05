@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MartiniLindberg
+- 👀 I’m interested in project management and Scrum
+- 🌱 I’m currently learning how to travel in time
+- 💞️ I’m looking to collaborate on the quest for a better world
+- 📫 martin.lindberg@folkepartners.se
